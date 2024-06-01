@@ -1,1 +1,2 @@
-![image](https://github.com/DaweiKang/Landfill-detection/assets/162332266/9464b086-779b-483f-9841-c21ba5559848)
+![页-1(4)](https://github.com/DaweiKang/Landfill-detection/assets/162332266/df860c39-6793-46b2-a675-a8fe39c83dec)
+
